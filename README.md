@@ -4,4 +4,4 @@ Welcome!
 ANKIT KUMAR YADAV
 ankityadav1852@gmail.com
 Soumili @sequin_lush
-priya  _prii._yaa Inta 
+priya  _prii._yaa I
